@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jensen1986
 - 👀 I’m interested in marketing, design, products and vídeo.
 - 🌱 I’m currently learning video editor
-- 💞️ I’m looking to collaborate on novas formas de criar um bom trabalho, e transformar os negócios.
+- 💞️ I’m looking to collaborate on for create a New works, and change business.
 - 📫 How to reach me jendutra@gmail.com
 
 <!---
